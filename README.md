@@ -1,2 +1,1 @@
 # SantiagoSuazaF
-Ingeniero Mecatrónico 
